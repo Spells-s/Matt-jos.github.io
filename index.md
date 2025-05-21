@@ -4,4 +4,4 @@
 - **Role**: Software Developer 
 - **Hobbies**: Reading, Sleeping, Music
 
-I foogot to screenshot so yet anothr pull.
+I forgot to screenshot so yet anothr pull.
